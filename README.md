@@ -1,0 +1,2 @@
+# InfinityBlooketTokenHack
+OMG
